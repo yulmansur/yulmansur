@@ -3,4 +3,3 @@
 - 🌱 I’m currently learning PsyTech
 - 💞️ I’m looking to collaborate on Scriptwriting
 - 📫 How to reach me yullmaansur@gmail.com
-
